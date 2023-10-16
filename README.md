@@ -1,0 +1,1 @@
+# barringer_elliott_rps
